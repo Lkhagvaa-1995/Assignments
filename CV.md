@@ -47,7 +47,7 @@ Tel: +06-2086-9464      |  [LinkedIn](https://www.linkedin.com/in/lkhagvaa-erden
 * Prepared PowerPoint presentations for governmental dignitaries 
 
 ### [Luby-Jenkins School sharing program](http://www.sister-cities.org/interactive-map/relationship/Denver,%20Colorado/Ulaanbaatar,%20Mongolia) - Denver, Phoenix and Tuba City, USA          
-#### *Project participant and performer (March, 2012)*
+#### *Project participant and traditional art performer (March, 2012)*
 #### School sharing program was organized by Denver-Ulaanbaatar sister- cities committee. Only students who were fluent in English, able to perform traditional arts and had ability to give speeches were selected as project participants.   
 * Gave speeches about Mongolia and its culture to US students and worked at Denver zoo as a volunteer                
 * Played Mongolian traditional musical instrument “Morin Khuur”
